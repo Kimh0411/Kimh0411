@@ -3,7 +3,7 @@
 - 🔭 🌱 ⚡ 😄 📫 💬 🤔 👯 
 - be yourself no matter whatever they say
 
-### Naver: https://blog.naver.com/soon60111
+
 
 
 <div align=center><h1>📚 STACKS</h1></div>
